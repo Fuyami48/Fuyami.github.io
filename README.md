@@ -1,0 +1,2 @@
+# Fuyami.github.io
+Атрофирован
